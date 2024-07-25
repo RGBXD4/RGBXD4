@@ -1,5 +1,5 @@
 ### Hi there 👋
-i am RGBXD4，port a few fnf and i like drawing and watching books lol
+i am RGBXD4，dick 💀
 
 <!--
 **RGBXD4/RGBXD4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
