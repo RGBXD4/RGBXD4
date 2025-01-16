@@ -1,5 +1,5 @@
 ### Hi there 👋
-i am RGBXD4，dick 💀
+火影忍者手游❤️❤️❤️✨✨✨
 
 <!--
 **RGBXD4/RGBXD4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
